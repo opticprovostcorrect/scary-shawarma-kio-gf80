@@ -1,4 +1,4 @@
-
+scary shawarma kiosk Scripts smart is the best scary shawarma kiosk Script, featuring auto-collect and unlimited stamina. Safe and powerful for all
 
 
 
